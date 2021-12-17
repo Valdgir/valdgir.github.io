@@ -12,4 +12,4 @@ My name is Mathias, my profession is a Java programmer, and exploring Java is th
 * GitHub: [GitHub/Valdgir](https://github.com/Valdgir)
 * Twitter: [@Znpvrw](https://Twitter.com/Znpvrw)
 
-☄️
+☄️⁹⁄₁₀
