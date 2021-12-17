@@ -2,7 +2,7 @@
 
 ## About me
 
-My name is Mathias, my profession is a Java programmer, and exploring Java is the reason why I'm here.
+My name is Mathias, my profession is a Java programmer, and exploring Java is the reason why I'm here. Yet, possession is ⁹⁄₁₀ per cent of the law.
 
 ## Contact
 
