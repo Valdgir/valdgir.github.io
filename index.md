@@ -11,6 +11,6 @@ My name is Matthias, my profession is a Java programmer, and the unknown is the 
 * Znpvrw Zngvnfmbjfxv
 * Homepage: [Valdgir.GitHub.io](https://valdgir.github.io/)
 * GitHub: [GitHub/Valdgir](https://github.com/Valdgir)
-* XMPP: ...
+* Email: <a href="mailto:Znpvrw.Zngvnfmbjfxv@gmail.com">Znpvrw.Zngvnfmbjfxv@gmail.com</a>
 
 c[_]
