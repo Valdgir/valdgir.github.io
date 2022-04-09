@@ -11,6 +11,5 @@ My name is Matthias, my profession is a Java programmer, and the unknown is the 
 * Znpvrw Zngvnfmbjfxv
 * Homepage: [Valdgir.GitHub.io](https://valdgir.github.io/)
 * GitHub: [GitHub/Valdgir](https://github.com/Valdgir)
-* Twitter: [@Znpvrw](https://Twitter.com/Znpvrw)
 
-🌿⚛️☕
+⚛️
