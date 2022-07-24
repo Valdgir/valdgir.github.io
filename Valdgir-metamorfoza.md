@@ -9,8 +9,7 @@ zajęcie, a w dodatku wziąłem wakacje od nauki tego języka obcego. Moją gło
 w rozmowie internetowej zaprezentowałem się jako niepraktykujący katolik i agnostyk, więc postępowała zmiana poglądów religijnych.
 
 Nie jest moim celem podyktowanie definicji ateizmu czyli poglądu zaprzeczającego istnieniu bóstw, a zwłaszcza Boga. Za cel swojego ataku obieram Jezusa Chrystusa.
-Wierząca osoba nie dysponuje żadnym dowodem na istnienie Boga. Istnieją jedynie słabe dowody na Jego istnienie w tajemniczej branży zwanej teologią. Takie słabe dowody
-to nie są żadne dowody. Czy może być słaby dowód? Nie. Musi być normalny, czyli niesłaby. Po to mamy zmysły, aby dotykać rzeczy jakimi są. Osobie wierzącej
+Wierząca osoba nie dysponuje żadnym dowodem na istnienie Boga. Istnieją jedynie słabe dowody na Jego istnienie w tajemniczej gałęzi wiedzy zwanej teologią. Wierzący miłują tajemnice takie jak choćby dzisiejsza różańcowa chwalebna tylko dlatego, że są one tajemnicami. Jednakże słabe dowody to wciąż nie są żadne dowody. Czy może być słaby dowód? Nie. Musi być normalny, czyli precyzyjnie napisany. Po to mamy zmysły, aby dotykać rzeczy jakimi są. Osobie wierzącej
 wystarczy jednak słaby dowód. Dlaczego decyduję się nie wierzyć, podobnie jak to czyni w obecnych czasach wielu młodych ludzi. Sam jestem w średnim wieku, ale czytałem
 "Boga urojonego" Richarda Dawkinsa i stąd te słowa o precyzyjnym pisaniu dowodów, czyli rozumowań jakich nie znajdziesz u teistów. Tak oto moje poglądy religijne uległy
 przemianie od katolicyzmu, przez agnostycyzm do ateizmu.
