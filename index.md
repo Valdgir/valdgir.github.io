@@ -2,7 +2,7 @@
 
 ## About me
 
-My name is Matthias, my profession is a Java programmer, and the unknown is the reason why I'm here. I have a beggining of something that might end as a [balloon shooting game](https://github.com/Valdgir/99balloons).
+My name is Matthias, my profession is Java programming, and the unknown is a reason why I'm here. I have a beginning of something that might end as a [balloon shooting game](https://github.com/Valdgir/99balloons). If you're interested in switching your religious beliefs to atheism, read [my note](Valdgir-metamorfoza.md) in Polish.
 
 ## Contact
 
