@@ -8,7 +8,7 @@ i niejako z przyzwyczajenia odmieniłem w myślach niemieckie czasowniki: sein, 
 zajęcie, a w dodatku wziąłem wakacje od nauki tego języka obcego. Moją głowę zajęła koncepcja Boga przedstawiona choćby przez mojego patrona św. Tomasza z Akwinu. Ostatnio
 w rozmowie internetowej zaprezentowałem się jako niepraktykujący katolik i agnostyk, więc postępowała zmiana poglądów religijnych.
 
-Nie jest moim celem dotyktowanie definicji ateizmu czyli poglądu zaprzeczającego istnieniu bóstw, a zwłaszcza Boga. Za cel swojego ataku obieram Jezusa Chrystusa.
+Nie jest moim celem podyktowanie definicji ateizmu czyli poglądu zaprzeczającego istnieniu bóstw, a zwłaszcza Boga. Za cel swojego ataku obieram Jezusa Chrystusa.
 Wierząca osoba nie dysponuje żadnym dowodem na istnienie Boga. Istnieją jedynie słabe dowody na Jego istnienie w tajemniczej branży zwanej teologią. Takie słabe dowody
 to nie są żadne dowody. Czy może być słaby dowód? Nie. Musi być normalny, czyli niesłaby. Po to mamy zmysły, aby dotykać rzeczy jakimi są. Osobie wierzącej
 wystarczy jednak słaby dowód. Dlaczego decyduję się nie wierzyć, podobnie jak to czyni w obecnych czasach wielu młodych ludzi. Sam jestem w średnim wieku, ale czytałem
